@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+🌱 I am a current Masters student at the Bren School at the University of Santa Barbara, California. I am specializing in both Pollution Prevention and Remediation and Business and Sustainability. 🌱 
+
+😄 Pronouns: she/her
+
+📫 How to reach me: kathryntomasi@ucsb.edu |
+                    917-340-1729 |
+                    [linkedin](https://www.linkedin.com/in/kathryn-tomasi/)
+
+💬 [Bio](https://bren.ucsb.edu/people/kathryn-tomasi)
